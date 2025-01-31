@@ -49,7 +49,7 @@ Communication strategies for negotiations and debriefs
 
 I have been in the kink scene for 6+ years and have done over 50 scenes in public spaces (  The Club, Prov, Pleasure Palace, Splinter, Spirit Kink, Curiosity ) and *many* more in private.
 
-I am a sadomasochistic switch, and have experience on both sides of the d/s slash, I have a cert IV in training and assessment, and have done private studies in psychology, and I've ready a bunch of books on kink, I also help run the northern munch.
+I am a sadomasochistic switch, and have experience on both sides of the d/s slash, I have a cert IV in training and assessment, and have done private studies in psychology, and I've read a bunch of books on kink, I also help run the northern munch.
 
 Joining me will be a partner, Electric Crystal, who will be assisting with scene examples, and providing insight into her experience as a play partner.
 
