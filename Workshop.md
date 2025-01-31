@@ -60,84 +60,84 @@ These talking points will be discussed as part of the workshop
 
 ## CNC Definitions and Law
 
-    * Affirmative consent laws in Victoria
-    * How this applies to CNC
-    * CNC stereotypes, myths, tropes, misuse and appropriation
-    * You have almost certainly done CNC and not realized it
+* Affirmative consent laws in Victoria
+* How this applies to CNC
+* CNC stereotypes, myths, tropes, misuse and appropriation
+* You have almost certainly done CNC and not realized it
 
 ## Bad uses for CNC
 
-    * Dangerous reasons people might do CNC
-    * Using CNC as a proxy for poor boundaries/communication
-    * Using CNC as a proxy for actually getting consent
+* Dangerous reasons people might do CNC
+* Using CNC as a proxy for poor boundaries/communication
+* Using CNC as a proxy for actually getting consent
 
 ## Good Uses for CNC
 
-    * Humour
-    * Surprise
-    * Fear of the unknown
-    * Raising the intensity of a scene
-    * Plot twists/misdirection
+* Humour
+* Surprise
+* Fear of the unknown
+* Raising the intensity of a scene
+* Plot twists/misdirection
 
 ## Pre-requisites / How to know if you're "ready" for CNC
 
-    * Checklist for Tops and Bottom
-        * Are you doing it for the right reasons?
-        * Do you have the right skillset
-        * Is your communication good enough?
-        * Do you both feel empowered to call boundaries
+* Checklist for Tops and Bottom
+* Are you doing it for the right reasons?
+* Do you have the right skillset
+* Is your communication good enough?
+* Do you both feel empowered to call boundaries
 
 ## First conversations with your partner about CNC
 
-    * Defining what CNC means to you
-    * Creating a space for open idea exchange
-    * Being clear about seperating the "discovery phase" and "actually planning the scene"
-    * Ways to empower the calling of boundaries
-    * Ways to test/check in the calling of boundaries
-    * How the different communication styles effect negotiations ( text vs email vs phone vs voice chat )
-    * Giving each other enough time post-negotiation to reflect and decide if it's the right choice
+* Defining what CNC means to you
+* Creating a space for open idea exchange
+* Being clear about seperating the "discovery phase" and "actually planning the scene"
+* Ways to empower the calling of boundaries
+* Ways to test/check in the calling of boundaries
+* How the different communication styles effect negotiations ( text vs email vs phone vs voice chat )
+* Giving each other enough time post-negotiation to reflect and decide if it's the right choice
 
 ## Mindset traps and their solutions
 
-    * Seperating "Fantasies" from "Practical Ideas"
-        * Real choice vs the illusion of choice
-        * How denying agency to the bottom can lead to boredom
-        * How changing small variables in a scene can greatly impact mindset
-        * Why "Internal fantasies" often don't translate to practical scenes
-        * How to workshop the internal fantasies into practical ideas
-        * Spreadsheet and Flowcharts! oh my!
+* Seperating "Fantasies" from "Practical Ideas"
+* Real choice vs the illusion of choice
+* How denying agency to the bottom can lead to boredom
+* How changing small variables in a scene can greatly impact mindset
+* Why "Internal fantasies" often don't translate to practical scenes
+* How to workshop the internal fantasies into practical ideas
+* Spreadsheet and Flowcharts! oh my!
 
 ## Planning the Scene
 
-    * Pre-scene induction
-    * Prompting safeword oppurtunities before high risk moments
-    * Examples of good timeframes for most common types of play
-    * Tripping hazards, falls and takedowns
-    * Bondage and how it effect mindset and timeframes
-    * Developing a "branching path" so you have options no matter how the scene goes
-    * Post scene aftercare
+* Pre-scene induction
+* Prompting safeword oppurtunities before high risk moments
+* Examples of good timeframes for most common types of play
+* Tripping hazards, falls and takedowns
+* Bondage and how it effect mindset and timeframes
+* Developing a "branching path" so you have options no matter how the scene goes
+* Post scene aftercare
 
 ## Scene flow and problem solving
 
-    * "If you don't plan for failure, you are planning to fail"
-    * Managing last minute change of mind
-    * Managing pain tolerance in impact play
-    * Managing nausea/disgust/headspace in sex play
-    * Managing cramps/panic/nerve safety in bondage play
-    * Managing embarrassment/brainspace during exposure play
-    * Managing sudden headspace shifts ( and what can trigger it )
-    * Effective debriefing
+* "If you don't plan for failure, you are planning to fail"
+* Managing last minute change of mind
+* Managing pain tolerance in impact play
+* Managing nausea/disgust/headspace in sex play
+* Managing cramps/panic/nerve safety in bondage play
+* Managing embarrassment/brainspace during exposure play
+* Managing sudden headspace shifts ( and what can trigger it )
+* Effective debriefing
 
 ## Scene examples, why the nuances matter
 
-    * The Rubber band scene
-    * The Multiple Choice Questionarre scene
-    * The Bladder play scene
-    * The Dictionary scene
-    * The Rubix cube scene
-    * Personal anecdotes
-        * How same scene can go VERY differently with different bottoms
+* The Rubber band scene
+* The Multiple Choice Questionarre scene
+* The Bladder play scene
+* The Dictionary scene
+* The Rubix cube scene
+* Personal anecdotes
+* How same scene can go VERY differently with different bottoms
 
 ## Open discussion and questions
 
-    * Audience questions
+* Audience questions
